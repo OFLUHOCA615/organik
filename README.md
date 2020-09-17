@@ -1,1 +1,1 @@
-organik.com
+organik
